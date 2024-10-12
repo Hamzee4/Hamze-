@@ -1,2 +1,0 @@
-# Hamze-
-Bohartumafi
